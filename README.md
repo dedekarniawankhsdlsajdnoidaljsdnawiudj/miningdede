@@ -1,0 +1,2 @@
+# miningdede
+oide1
